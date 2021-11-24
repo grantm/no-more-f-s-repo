@@ -7,3 +7,4 @@ _Verse 1_
 I’ve tried, tried, tried  
 And I’ve tried even more  
 I’ve Cried, Cried, Cried  
+And I can’t recall what for  
