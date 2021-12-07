@@ -18,3 +18,4 @@ _Chorus 1_
 I’ve no more fucks to give,  
 My fucks have runneth dry,  
 I’ve tried to go fuck shopping  
+But there’s no fucks left to buy  
