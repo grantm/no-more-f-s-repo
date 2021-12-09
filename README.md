@@ -20,3 +20,4 @@ My fucks have runneth dry,
 I’ve tried to go fuck shopping  
 But there’s no fucks left to buy  
 I’ve no more fucks to give,  
+Though more fucks I’ve tried to get,  
