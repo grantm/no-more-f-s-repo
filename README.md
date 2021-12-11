@@ -21,3 +21,4 @@ I’ve tried to go fuck shopping
 But there’s no fucks left to buy  
 I’ve no more fucks to give,  
 Though more fucks I’ve tried to get,  
+I’m over my fuck budget and  
