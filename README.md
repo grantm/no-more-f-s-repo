@@ -27,3 +27,4 @@ I’m now in fucking debt
 _Verse 2_
 
 I strive, strive, strive  
+To get everything done  
