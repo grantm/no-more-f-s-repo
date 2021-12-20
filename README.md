@@ -29,3 +29,4 @@ _Verse 2_
 I strive, strive, strive  
 To get everything done  
 I’ve played by all the rules  
+But I’ve very rarely won,  
