@@ -36,3 +36,4 @@ Alas to no avail
 I’ve run round like a moron,  
 To unequivocally fail!  
 
+_Chorus 2_
