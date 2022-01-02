@@ -40,3 +40,4 @@ _Chorus 2_
 
 I’ve no more fucks to give,  
 My fuck fuse has just blown,  
+I’ve been hunting for my fucks all day,  
