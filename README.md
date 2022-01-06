@@ -44,3 +44,4 @@ I’ve been hunting for my fucks all day,
 But they’ve upped and fucked off home,  
 I’ve no more fucks to give,  
 My fuck rations are depleted,  
+I’ve rallied my fuck army but  
