@@ -50,3 +50,4 @@ It’s been fucking defeated!
 _Bridge_
 
 The effort has just not been worth  
+The time or the expense  
