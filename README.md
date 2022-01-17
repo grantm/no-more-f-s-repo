@@ -53,3 +53,4 @@ The effort has just not been worth
 The time or the expense  
 I’ve exhausted all my energy  
 For minimal recompense  
+The complete lack of acknowledgement  
