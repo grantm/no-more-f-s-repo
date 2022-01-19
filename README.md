@@ -55,3 +55,4 @@ I’ve exhausted all my energy
 For minimal recompense  
 The complete lack of acknowledgement  
 Has now begun to gall  
+And I’ve come to realise that I  
