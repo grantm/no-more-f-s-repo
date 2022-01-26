@@ -61,3 +61,4 @@ Don’t give a fuck at all!
 _Chorus 3_
 
 I’ve no more fucks to give,  
+My fucks have flown away,  
