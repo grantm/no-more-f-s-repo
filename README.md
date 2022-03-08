@@ -72,3 +72,4 @@ While they’re fucking off again!
 _Chorus 4_
 
 I’ve no more fucks to give,  
+My fucks have all dissolved,  
