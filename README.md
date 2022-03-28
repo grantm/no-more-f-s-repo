@@ -89,3 +89,4 @@ I’ve no more fucks,
 I’ve no more fucks to give!  
 
 ---
+This work is copyright (c) [Thomas Benjamin Wild](https://tombwild.com/)
